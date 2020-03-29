@@ -25,9 +25,6 @@
 | [![Maisa Maximo](https://avatars3.githubusercontent.com/u/16991001?v=43&s=144)](https://github.com/maisamaximo) |
 | --------------------------------------------------------------------------------------------------------------- |
 
-
-[Github](https://github.com/maisamaximo)
-
 [LinkedIn](https://www.linkedin.com/in/maisa-maximo-ferreira/)
 
 ## Show your support
